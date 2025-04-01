@@ -1,5 +1,5 @@
+![image](https://github.com/user-attachments/assets/94bfeecf-77e7-4d2e-9072-ffff653dee9c)
 
-![programming-or-coding-concept-modern-isometric-illustration-for-web-banner-website-element-brochures-or-book-cover-vector](https://github.com/user-attachments/assets/6a577ecf-b6e9-4188-8a55-308f07159a6e)
 
 Materia: Fundamentos de Programación 
 
